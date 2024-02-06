@@ -4,7 +4,7 @@
 
 -----
 
-<p align = "center"><img src="http://chudo-prirody.com/uploads/posts/2021-08/1628819303_90-p-kot-ulibaetsya-foto-98.jpg" width="400"></p>
+<p align = "center"><img src="https://www.24presse.com/ImgUsers/20/20077/image/045avm7nkg.jpg" width="400"></p>
 
 <p><a href = "https://vk.com/mem1001" >CCЫЛКА</a></p>
 
